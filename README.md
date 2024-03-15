@@ -1,0 +1,1 @@
+# blog.noguchi2000.com
